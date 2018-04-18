@@ -1,2 +1,3 @@
-# Fast Good Cheap
-You want a Fast, Good, and Cheap project?
+# Money Time Health
+
+You want a life with Money, Time, and Health?
